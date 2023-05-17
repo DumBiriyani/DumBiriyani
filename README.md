@@ -1,5 +1,11 @@
 ### You shall pass
 
+Who am I?
+Data Science Enthusiast | NLP in Business | Pharmaceutical Data Analytics | MS Business Analytics, UMN | Decision Analytics Associate, ZS Associates | NIT, Tiruchirappalli
+
+![Graduate_Walk_pic](https://github.com/DumBiriyani/DumBiriyani/assets/19753112/56edf32d-c745-4760-be3c-2cf638b401b5)
+
+
 <!--
 **DumBiriyani/DumBiriyani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
