@@ -1,6 +1,7 @@
 ### You shall pass
 
-Data Science | NLP for Business | Pharmaceutical Data Analytics | MS Business Analytics, UMN | Decision Analytics Associate, ZS Associates | NIT, Tiruchirappalli
+Data Science | NLP for Business | Pharmaceutical Data Analytics | MS Business Analytics, UMN  
+| Decision Analytics Associate, ZS Associates | NIT, Tiruchirappalli  
 
 Looking for exciting opportunities to work in collaboration with unrelenting individuals
 
