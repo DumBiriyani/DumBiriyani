@@ -1,6 +1,5 @@
 ### You shall pass
 
-Who am I?
 Data Science Enthusiast | NLP in Business | Pharmaceutical Data Analytics | MS Business Analytics, UMN | Decision Analytics Associate, ZS Associates | NIT, Tiruchirappalli
 
 Looking for exciting opportunities working in collaboration with unrelenting individuals
