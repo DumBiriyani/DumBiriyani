@@ -5,7 +5,7 @@ Data Science | NLP for Business | Pharmaceutical Data Analytics | MS Business An
 Looking for exciting opportunities to work in collaboration with unrelenting individuals
 
 Contact:
-gajal001@gmail.com
+gajal001@gmail.com  
 [Linkedin](https://www.linkedin.com/in/ramgs/) 
 
 <!--
