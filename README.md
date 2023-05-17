@@ -6,7 +6,7 @@ Looking for exciting opportunities to work in collaboration with unrelenting ind
 
 Contact:
 gajal001@gmail.com
-[https://www.linkedin.com/in/ramgs/] (Linkedin)
+(https://www.linkedin.com/in/ramgs/) (Linkedin)
 
 <!--
 **DumBiriyani/DumBiriyani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
