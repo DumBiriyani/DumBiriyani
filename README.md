@@ -4,6 +4,9 @@ Data Science | NLP for Business | Pharmaceutical Data Analytics | MS Business An
 
 Looking for exciting opportunities to work in collaboration with unrelenting individuals
 
+Contact:
+gajal001@gmail.com
+[https://www.linkedin.com/in/ramgs/] (Linkedin)
 
 <!--
 **DumBiriyani/DumBiriyani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
