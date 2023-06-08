@@ -1,7 +1,5 @@
 ### You shall pass
-|  
-|  
-|  
+
 &nbsp;  
 &nbsp;  
 &nbsp;  
