@@ -2,13 +2,10 @@
 My idiosyncrasy is "Do your best and hope for the rest"  
 Vivid believer in the deficiencies associated with sub-par work and the fact that sometimes people can surprise you  
 &nbsp;  
-&nbsp;  
-&nbsp;  
-&nbsp;  
 .  
 .  
 .  
- 
+&nbsp;  
 Data Science | NLP for Business | Pharmaceutical Data Analytics | MS Business Analytics, UMN  
 | Decision Analytics Associate, ZS Associates | NIT, Tiruchirappalli  
 
