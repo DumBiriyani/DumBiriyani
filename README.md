@@ -1,6 +1,6 @@
 ### You shall pass  
 My idiosyncrasy is "Do your best and hope for the rest"  
-Vivid believer in the deficiencies associated with sub-par work and the fact that sometimes people can surprise you  
+Vivid believer in the deficiencies associated with sub-par work  
 &nbsp;  
 .  
 .  
